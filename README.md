@@ -1,0 +1,2 @@
+# static.clovia.com
+ihdaw
